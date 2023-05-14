@@ -1,0 +1,1 @@
+# Visi_Komumputer_23420030
